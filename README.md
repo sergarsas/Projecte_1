@@ -1,3 +1,2 @@
 # Estoy ✨sufriendo✨
-
-Labubudomination
+"Iker es GOD y los demas ZZZ"
